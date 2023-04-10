@@ -12,5 +12,5 @@
 - 💬 Ask me about sex
 - 📫 How to reach me: sex.com
 - 😄 Pronouns: sex/sex
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: sex is real
 
