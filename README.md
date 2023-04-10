@@ -1,16 +1,16 @@
 ### Hi there 👋
 
-<!--
-**ktwsky13/ktwsky13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
+
+
+
+- 🔭 I’m currently working on sex
+- 🌱 I’m currently learning sex
+- 👯 I’m looking to collaborate on sex
+- 🤔 I’m looking for help with sex
+- 💬 Ask me about sex
+- 📫 How to reach me: sex.com
+- 😄 Pronouns: sex/sex
 - ⚡ Fun fact: ...
--->
+
